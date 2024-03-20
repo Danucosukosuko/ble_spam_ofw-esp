@@ -1,4 +1,4 @@
-# BLE Spam for OFW
+# BLE Spam for OFW Espñañol (más o menos)
 
 ![](https://thumb.tildacdn.com/tild3332-3839-4061-b663-363464303432/-/resize/214x/-/format/webp/noroot.png)
 
